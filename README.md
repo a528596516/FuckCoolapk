@@ -1,6 +1,5 @@
-# FuckCoolapk
+# 自用
 
-**Best present for 316 and 423.**
 
 # 模块已停更，谢谢合作。
 
